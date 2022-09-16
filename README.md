@@ -151,4 +151,8 @@ A die hard Arsenal fan!
 
 Aspiring Bioinformatician!
 
+## Stephen Otieno
 
+Institution: _JKUAT_
+
+Looking forward to learn
